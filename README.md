@@ -1,4 +1,4 @@
-# Privacy Policy & Terms of Use
+# Privacy Policy
 
 
 ### Last updated: April 20th (420), 2023
